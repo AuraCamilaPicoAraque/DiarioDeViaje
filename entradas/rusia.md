@@ -37,3 +37,10 @@ Durante la Guerra Fría, se refería al Gobierno de la Unión Soviética.
 
 
 
+## Informacion sobre rusia
+
+
+El Kremlin es una fortaleza situada en el centro de Moscú, la parte más antigua de la ciudad. Es el principal complejo sociopolítico e histórico-artístico de la ciudad y la residencia oficial del presidente de la Federación de Rusia.
+
+
+
