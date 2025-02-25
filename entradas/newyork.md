@@ -7,3 +7,8 @@
 Nueva York es una ciudad de Estados Unidos que es un centro financiero, comercial, cultural y turístico. Es conocida como "la ciudad que nunca duerme". 
 
 
+
+## Recomendación
+
+
+Central Park. Empezamos por el gigantesco pulmón verde de Nueva York, el icónico Central Park, Estatua de la Libertad , MoMA y disfruta . 
