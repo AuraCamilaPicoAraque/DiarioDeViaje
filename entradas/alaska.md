@@ -19,3 +19,8 @@ El glaciar Mendenhall en Juneau, Alaska es una atracción turística que se reco
 ![](https://dynamic-media-cdn.tripadvisor.com/media/photo-o/0c/08/a2/d3/fb-img-1468730147869.jpg?w=900&h=500&s=1)
 
 
+
+## Informacion sobre alaska
+
+El Glaciar Mendenhall es un Glaciar con aproximadamente 19 km de longitud localizado en el Valle Mendenhall, cerca de 19 km del centro de Juneau en el parte sudeste del estado de Alaska. El área protegida del glaciar es llamada el Mendenhall Glacier Recreation Area, un área federal en el Bosque Nacional Tongass.​
+
