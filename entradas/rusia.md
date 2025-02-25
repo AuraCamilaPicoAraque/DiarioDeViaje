@@ -30,3 +30,10 @@ El nombre Kremlin significa en ruso "fortaleza dentro de una ciudad".
 Durante la Guerra Fría, se refería al Gobierno de la Unión Soviética. 
 
 
+
+## Foto
+
+![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQb6JRrVwTZxq4l2FDRN1FPnb3N9dH5Gpu_Tg&s)
+
+
+
