@@ -18,3 +18,7 @@ Se recomienda visitarlo en cualquier época del año, ya que cada estación le d
 
 
 
+## Informacion sobre tokio.
+
+Santuario Meiji, ubicado en el distrito de Shibuya, Tokio, Japón. Es un santuario sintoísta dedicado a los espíritus deificados del Emperador Meiji y su mujer, la Emperatriz Shōken.​​Fue fundada el 1 de noviembre de 1920, tras la muerte del Emperador Meiji.
+
