@@ -6,3 +6,7 @@
 
 Ciudad del amor, conocida por su icónica Torre Eiffel , recomendada
 
+
+## Recomendación
+
+Visitar el Museo del Louvre.
