@@ -11,3 +11,10 @@ Este santuario sintoísta, rodeado por un frondoso bosque en el mismo corazón d
 
 Se recomienda visitarlo en cualquier época del año, ya que cada estación le da un carácter diferente. 
 
+
+## Foto
+
+![](https://upload.wikimedia.org/wikipedia/commons/e/ed/Courtyard_of_Meiji_Shrine_20190717.jpg)
+
+
+
