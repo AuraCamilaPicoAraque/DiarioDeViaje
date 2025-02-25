@@ -15,3 +15,8 @@ Admirar sus vidrieras
 Subir a la torre para ver las vistas de la ciudad
 Visitar el sarcófago que según la tradición contiene los cuerpos de los Reyes Magos
 
+
+
+## Foto
+
+![](https://historia.nationalgeographic.com.es/medio/2020/12/15/noche_f0fe1be9_1280x853.jpg)
