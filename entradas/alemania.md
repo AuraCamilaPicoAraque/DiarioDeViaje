@@ -20,3 +20,8 @@ Visitar el sarcófago que según la tradición contiene los cuerpos de los Reyes
 ## Foto
 
 ![](https://historia.nationalgeographic.com.es/medio/2020/12/15/noche_f0fe1be9_1280x853.jpg)
+
+
+## Informacion sobre alemania
+
+La catedral de Colonia es un templo católico de estilo gótico, que empezó a construirse en 1248 y se terminó en 1880. Está situada en el centro de la ciudad alemana de Colonia, en el estado de Renania del Norte-Westfalia.
