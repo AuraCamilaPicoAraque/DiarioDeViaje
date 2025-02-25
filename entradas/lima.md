@@ -17,3 +17,9 @@ En Lima, puedes disfrutar del ambiente cosmopolita de la capital o explorar un i
 ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ59OfFKe0rJjtel1o1Bl4VUQ0f_pBnS4lTFQ&s)
 
 
+
+## Informacion sobre lima
+
+Se caracteriza por sus restaurantes, tiendas comerciales y centros de espectáculos. Cuenta con grandes y modernas zonas comerciales, teatros, cines y galerías de arte. Destacan sus áreas verdes de gran belleza, como el Parque Kennedy, que alberga a artesanos, pintores, escultores y grupos de música folclórica.
+
+
